@@ -11,6 +11,9 @@ What you need
 * A pinch of salt
 * 2 tbsp olive oil
 * 3 tbsp water
+* 1/2 tbsp butter
+
+
 
 Steps
 =====
